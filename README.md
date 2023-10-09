@@ -1,2 +1,11 @@
 # MAL
 ![image](https://github.com/Tactical-BTC/MAL/assets/109646368/5fcdab8d-f120-46a4-8c4a-e1ec68dd9e31)
+![image](https://github.com/Tactical-BTC/MAL/assets/109646368/2640d967-b4ab-4b7b-a219-288d3fcb4133)
+![image](https://github.com/Tactical-BTC/MAL/assets/109646368/505dd488-76a3-4e2b-97dd-084927431405)
+![image](https://github.com/Tactical-BTC/MAL/assets/109646368/4b3ab5ab-77a8-4a37-b0d9-23c4a2509af0)
+![image](https://github.com/Tactical-BTC/MAL/assets/109646368/75c3b3c3-239c-48a0-9ca8-d3c890c8b7f8)
+![image](https://github.com/Tactical-BTC/MAL/assets/109646368/61bbc9a2-4adb-42de-bfad-78b586db3122)
+![image](https://github.com/Tactical-BTC/MAL/assets/109646368/c1e870df-0790-4224-a2ca-42ce185348e2)
+![image](https://github.com/Tactical-BTC/MAL/assets/109646368/cee1a7d1-6037-4ea7-a316-abf141a39446)
+![image](https://github.com/Tactical-BTC/MAL/assets/109646368/dd532dc7-1074-4ccd-95dd-e66a714b4f37)
+![image](https://github.com/Tactical-BTC/MAL/assets/109646368/a6e021e8-fad6-47e9-8370-b41075308122)
